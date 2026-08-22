@@ -1,4 +1,4 @@
-# Brand Market Entry Skills
+# Aquria Brand Market Entry Skills
 
 ## 当品牌准备进入一个新市场
 
